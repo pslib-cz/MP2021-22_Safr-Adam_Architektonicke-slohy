@@ -1,0 +1,1 @@
+# MP2021-22_Safr-Adam_Architektonicke-slohy
